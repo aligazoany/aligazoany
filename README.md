@@ -1,0 +1,13 @@
+⌌➤ 👋 Hi, I’m @aligazoany
+⌌➤ 👀 I’m interested in ...
+⌌➤ 🌱 I’m currently learning ...
+⌌➤ 💞️ I’m looking to collaborate on ...
+⌌➤ 📫 How to reach me ...
+
+“”„„””„„””„„””„„””„„””„„””„„””
+aligazoany/aligazoany is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+⍣⍣⍣⍣⍣⍣⍣⍣⍣⍣⍣⍣⍣⍣⍣⍣⍣⍣⍣⍣⍣⍣⍣⍣⍣⍣⍣⍣⍣⍣⍣⍣
+⌌➤‏  ͟ـ͟Ɗąℳąℜ♛
+⌌➤◟ªli₁₉₉₂◞
+⌌➤◟ⓅⒶⓉⓇⒾⓄⓉ◞
